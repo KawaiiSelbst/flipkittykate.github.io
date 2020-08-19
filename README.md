@@ -1,3 +1,3 @@
 # flipkittykate.github.io
 
-https://b-ok.cc
+[https://b-ok.cc]
